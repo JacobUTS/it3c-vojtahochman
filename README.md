@@ -1,2 +1,2 @@
 # it3c-vojtahochman
-já chci domů :(
+já nemam domů :(
